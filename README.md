@@ -1,1 +1,3 @@
-RESUL DİNDAR [Oy Çalamadum Gitti](https://www.youtube.com/watch?v=t6hNicK_OdQ)
+Resul Dindar [Oy Çalamadum Gitti](https://www.youtube.com/watch?v=t6hNicK_OdQ)
+
+Koliva [Salladım Çemberimi](https://www.youtube.com/watch?v=ezclzFMObNY)
