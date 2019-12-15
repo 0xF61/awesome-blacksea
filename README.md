@@ -2,6 +2,8 @@ Ali Baran [Ağladum Gülemedum](https://www.youtube.com/watch?v=NQ4fUDgevao)
 
 Hazal Babalık & Şafak Uyanık [LAZCA MASHUP](https://www.youtube.com/watch?v=SZp-OERwFbQ)
 
+Karmate [Oy çalamadum gitti](https://www.youtube.com/watch?v=t6hNicK_OdQ)
+
 Koliva [Salladım Çemberimi](https://www.youtube.com/watch?v=ezclzFMObNY)
 
 Koliva [Düğün](https://www.youtube.com/watch?v=8Bc06ekeqhg)
