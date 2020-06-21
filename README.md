@@ -16,7 +16,7 @@ Selçuk Balcı [Yakalandım Doluya](https://www.youtube.com/watch?v=SLTNrwctwNM)
 
 Volkan Arslan [Çayeli Dereleri](https://www.youtube.com/watch?v=YxjR6so-BRw)
 
-#karadeniz çalma listesi
+
 
 Turan Şahin [Ya Ben Anlatamadum] (https://www.youtube.com/watch?v=Uhx3xUgd-oQ)
 
